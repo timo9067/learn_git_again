@@ -4,27 +4,7 @@ Lorem ipsum dolor
 Lorem ipsum dolor
 Lorem ipsum dolor
 
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
-Lorem ipsum dolor
+Eyong said to change smth
 
 
 
